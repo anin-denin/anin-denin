@@ -1,5 +1,5 @@
 # 💫 About Me:
-Holaa, still exploring tech, what are you working on?
+Holaa, still exploring in tech, what are you working on?
 
 
 ## 🌐 Socials:
