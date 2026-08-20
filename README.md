@@ -1,5 +1,5 @@
 # About Me:
-Holaa, still exploring in tech. what are you working on?
+oh hi...lemme inttroduce myself a lil bit ummmm i like code, music, gym an sleep :D
 
 
 ## Socials:
