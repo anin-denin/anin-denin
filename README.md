@@ -1,4 +1,4 @@
-# oh hi...lemme inttroduce myself a lil bit ummmm i like code, music, gym an sleep :D
+## oh hi...lemme introduce myself a lil bit ummmm i like code, music, gym an sleep :D
 
 
 ## Socials:
