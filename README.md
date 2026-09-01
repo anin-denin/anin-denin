@@ -1,4 +1,4 @@
-## oh hi, i like code, music, gym n sleep :D
+## oh hi.. i like code, music, gym n sleep :D
 
 
 ## Socials:
